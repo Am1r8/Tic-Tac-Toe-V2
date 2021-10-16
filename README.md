@@ -6,7 +6,7 @@ This version is much faster and the AI is very powerful and the chances of winni
 
 # The winner<br>
 
-IF YOU CAN WIN AGAINST THE AI SEND ME THE PICTURE AND I WILL GIVE YOU A PRICE.<br><br>
+IF YOU CAN WIN AGAINST THE AI SEND ME THE PICTURE TO MY INSTAGRAM AND I WILL GIVE YOU A PRICE.<br><br>
 
 Created By AlPHA With ❤️<br><br>
 
